@@ -1,1 +1,1 @@
-1. prueb de cambio inicial
+1. prueba de cambio inicial
